@@ -1,0 +1,1 @@
+# Sentencas-verdadeiras-e-falsas
